@@ -1,2 +1,2 @@
 # newbie
-chill guy with a pc this year
+im kinzi nig
